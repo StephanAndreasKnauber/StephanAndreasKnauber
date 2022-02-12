@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @StephanAndreasKnauber
 - 👀 I’m interested in God and the world.
 - 🌱 I’m currently learning English to brush up my English
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on in the future maybe
 - 📫 How to reach me Mobil 01625143250
                      Mail  stephanandreasknauber@gmx.de
 <!---
